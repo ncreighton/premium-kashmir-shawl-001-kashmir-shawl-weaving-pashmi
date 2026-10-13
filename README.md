@@ -1,0 +1,2 @@
+# premium-kashmir-shawl-001-kashmir-shawl-weaving-pashmi
+Tired of overpaying for machine-made imitations that claim to be 'authentic Pashmina'? Learn the centuries-old weaving techniques of Kashmir from master artisans and create heirlooms that respect the craft.  This workshop demystifies the complex art of genuine Kashmiri shawl weaving, giving you the knowledge to identify, appreciate, and even produc
